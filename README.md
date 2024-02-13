@@ -1,0 +1,1 @@
+# ekanat-fn-proje
